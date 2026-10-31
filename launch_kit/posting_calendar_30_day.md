@@ -1,0 +1,32 @@
+# 30-day draft calendar
+
+- 2026-11-02 — Instagram — IB-01 — One podcast episode can become more than one post. — DRAFT
+- 2026-11-03 — Instagram — IB-02 — Stop starting every post from a blank page. — DRAFT
+- 2026-11-04 — Instagram — IB-03 — A strong hook makes one clear promise. — DRAFT
+- 2026-11-05 — Instagram — IB-04 — Batch the decisions, not just the filming. — DRAFT
+- 2026-11-06 — YouTube Shorts — IB-05 — Turn one long recording into a useful short. — DRAFT
+- 2026-11-07 — YouTube Shorts — IB-06 — A repeatable weekly content routine. — DRAFT
+- 2026-11-08 — YouTube Shorts — IB-07 — Make educational content easier to save. — DRAFT
+- 2026-11-09 — Instagram — IB-08 — Your content calendar should answer four questions. — DRAFT
+- 2026-11-10 — YouTube Shorts — IB-09 — One topic, three angles. — DRAFT
+- 2026-11-11 — Instagram — IB-10 — A better call to action is specific. — DRAFT
+- 2026-11-12 — Instagram — IB-11 — 5 ways to reuse one podcast episode — DRAFT
+- 2026-11-13 — Instagram — IB-12 — The simple anatomy of a useful short video — DRAFT
+- 2026-11-14 — Instagram — IB-13 — Turn audience questions into a month of ideas — DRAFT
+- 2026-11-15 — LinkedIn — IB-14 — A content system beats last-minute posting — DRAFT
+- 2026-11-16 — LinkedIn — IB-15 — Measure more than likes — DRAFT
+- 2026-11-17 — LinkedIn — IB-16 — Creators do not need more random ideas. They need a system. — DRAFT
+- 2026-11-18 — LinkedIn — IB-17 — Repurposing is not copy-pasting. — DRAFT
+- 2026-11-19 — LinkedIn — IB-18 — A useful content brief can fit on one page. — DRAFT
+- 2026-11-20 — LinkedIn — IB-19 — A weekly review should lead to one decision. — DRAFT
+- 2026-11-21 — LinkedIn — IB-20 — Build content pillars around audience problems. — DRAFT
+- 2026-11-22 — Instagram — IB-21 — The three-question content check — DRAFT
+- 2026-11-23 — Instagram — IB-22 — Make your next post answer one real question — DRAFT
+- 2026-11-24 — YouTube Shorts — IB-23 — A clean short-form script template — DRAFT
+- 2026-11-25 — Instagram — IB-24 — A creator's pre-publish checklist — DRAFT
+- 2026-11-26 — LinkedIn — IB-25 — One source, multiple platform-native formats — DRAFT
+- 2026-11-27 — LinkedIn — IB-26 — The best content workflow is easy to repeat. — DRAFT
+- 2026-11-28 — Instagram — IB-27 — Your comments can become your next content brief. — DRAFT
+- 2026-11-29 — YouTube Shorts — IB-28 — Avoid the three-topic short video — DRAFT
+- 2026-11-30 — LinkedIn — IB-29 — Reach is not the same as growth. — DRAFT
+- 2026-12-01 — Instagram — IB-30 — Plan a week around one audience problem — DRAFT

@@ -1,0 +1,1 @@
+Templates only, not completed evidence. Complete either a preference test with at least 20 target-audience people or publish 10 assets over 5 days on accounts you own. Record real results and URLs. Do not contact creators or brands.
